@@ -1,4 +1,4 @@
-### Name this tasty christmas snack?
+### Name this tasty christmas snack
 
 > Calcium Nitrogen Dysprosium
 
