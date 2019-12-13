@@ -1,7 +1,7 @@
 ### Music to my ears
 
-A clash with some prisoners (0:12)
+A clash with some prisoners (12) ____ _____
 
-The Queen of Christmas (0:11)
+The Queen of Christmas (11) _____
 
-Rock legends stealing ____’s heart away
+It's beginning to look a lot like the King of Christmas (126) ______
