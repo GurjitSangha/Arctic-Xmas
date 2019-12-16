@@ -1,1 +1,1 @@
-### What’s the most important rule?
+There are three rules, what is the **most important**?
