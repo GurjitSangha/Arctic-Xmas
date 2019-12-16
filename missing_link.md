@@ -1,6 +1,6 @@
 ### What links these clues?
 
-H LYN GH T
+LV ESL LRND
 
 ST Y NTH RDY
 
